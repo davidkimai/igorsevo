@@ -1,4 +1,4 @@
 # [igorsevo](https://www.igorsevo.com)
 ## [Writing & Philosophy](https://www.igorsevo.com/writing-and-philosophy)
 
-<img width="903" alt="image" src="https://github.com/user-attachments/assets/5ba1bf52-b268-45c9-909d-ea079314b741" />
+<img width="900" alt="image" src="https://github.com/user-attachments/assets/eb90cb18-d3c2-4997-8c27-351dfcd2bd98" />
